@@ -3,15 +3,13 @@
 
 ## About Me:  :alien:
 </br>
-Working as a Developer at **CCA**, a non-profit tech organisation of our institute.
 
 I love learning new technologies and contributing to open source. Recently enjoying problem solving as well.
 
 I am currently working on something cool. :shipit:  </br>
 
-https://www.linkedin.com/in/ajayan-achuthan-314054111/
 
 ## How to reach me
-:pencil:  You can also find me writing at [Medium](https://medium.com/@aishikamidder) </br>
+:pencil:  You can also find me writing at [Medium](https://medium.com/@ajayanachuthan04) </br>
 :handshake: And making connections on [Linkedin](https://www.linkedin.com/in/ajayan-achuthan-314054111/)
           
