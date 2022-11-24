@@ -9,7 +9,9 @@ I love learning new technologies and contributing to open source. Recently enjoy
 
 I am currently working on something cool. :shipit:  </br>
 
+https://www.linkedin.com/in/ajayan-achuthan-314054111/
+
 ## How to reach me
 :pencil:  You can also find me writing at [Medium](https://medium.com/@aishikamidder) </br>
-:handshake: And making connections on [Linkedin](https://www.linkedin.com/in/aishika-midder-16b76b1a5/)
+:handshake: And making connections on [Linkedin](https://www.linkedin.com/in/ajayan-achuthan-314054111/)
           
